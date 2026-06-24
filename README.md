@@ -1,0 +1,1 @@
+# 260624bitget-copyTrading-guide
